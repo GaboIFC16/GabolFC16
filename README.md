@@ -4,4 +4,4 @@
 
 
 ### *About me:*
-#### :part_alternation_mark:y name is Gabriel Franco I'm student 
+#### :part_alternation_mark:y my name is gabriel franco i am 20 years old i study electronic engineering and telecommunications at the Latina university
